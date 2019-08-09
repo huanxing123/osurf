@@ -1,5 +1,5 @@
 ![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
-
+<a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
 打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/dajiyan" target=_blank><STRONG><FONT size=4>香港反送中</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/dajiyan" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fj3Go" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fjOvK" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/fjCWz" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
@@ -58,7 +58,7 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过3亿3千7百万民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”，不要给中共邪党做陪葬!
 
-[提交网址](http://t.cn/ELhkNlL) 
+[声明退出党团队请点击这里](http://t.cn/ELhkNlL) 
 
 发送名字（可网名或小名）+数字编号 (1党 2团 3队) 至 kuaitui10@gmail.com 即可快速办理3退（声明退出党团少先队）。长期有效。
 
