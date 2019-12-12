@@ -72,10 +72,15 @@
 
 **九评共产党** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_9p.zip)
 <STRONG><FONT size=4><A href="https://git.io/fjCRf" target=_blank><STRONG><FONT size=4> 在线阅读  </FONT></STRONG></A></FONT></STRONG> 
+
 **解体党文化** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jtdwh.zip)
+
 **真实的马克思** [点击下载pdf版](https://raw.githubusercontent.com/osurf/osurf/master/zsmx.pdf)
+
 **江泽民其人** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jqr.zip)
+
 **风雨天地行** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_fytdx.zip)
+
 **绝处逢生** [点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
 
 **●经典视频下载**（高速）
@@ -84,10 +89,19 @@
 
 1999年以后，在中国发生的活摘暴行，一个号称为人民服务的政党在活摘自己国民的器官，这是这个星球没有过的罪恶。今天此罪恶还在延续.。。。
 
-【伪火-天安门自焚真相】[点击下载](https://raw.githubusercontent.com/osurf/up/master/wh.3gp)【古今奇观-藏字石】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/stone.3gp) 【64天安门事件】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/6-4.3gp) 
+【伪火-天安门自焚真相】[点击下载](https://raw.githubusercontent.com/osurf/up/master/wh.3gp)
 
-【朝鲜战争始末】[下载视频](https://raw.githubusercontent.com/osurf/up/master/koreawar.3gp)  【江泽民卖国】[高速下载](https://raw.githubusercontent.com/osurf/up/master/maiguo.3gp)
-【地主刘文彩真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/liuwencai.3gp) 【大跃进真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/DaYueJin.3gp)
+【古今奇观-藏字石】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/stone.3gp) 
+
+【64天安门事件】 [高速下载](https://raw.githubusercontent.com/osurf/up/master/6-4.3gp) 
+
+【朝鲜战争始末】[下载视频](https://raw.githubusercontent.com/osurf/up/master/koreawar.3gp)  
+
+【江泽民卖国】[高速下载](https://raw.githubusercontent.com/osurf/up/master/maiguo.3gp)
+
+【地主刘文彩真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/liuwencai.3gp) 
+
+【大跃进真相 】[下载视频](https://raw.githubusercontent.com/osurf/up/master/DaYueJin.3gp)
 
 【纪录片：我们告诉未来 】 [在线播放](https://rutube.ru/video/person/1801275/)
 
@@ -96,7 +110,6 @@
 【绝处逢生】
 
 各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。
-
 愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
 
 [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/osurf/master/ebook_jcfs.zip)
