@@ -2,7 +2,7 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/JeO7i" target=_blank><STRONG><FONT size=4>香港人反抗暴政</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/JeO7o" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7l" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO78" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7V" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
+打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://git.io/JeO7i" target=_blank><STRONG><FONT size=4>武汉肺炎爆发</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/JeO7o" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7l" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO78" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7V" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
 
 **本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
 
@@ -41,8 +41,6 @@
 
 **自由门安卓版** [下载地址](https://git.io/fgma)
 
-**新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iNTD_TV.apk)
-
 **网门安卓版**  下载地址[网门安卓版](https://git.io/ogatea2)
 
 **神州正道安卓版**  下载地址[神州正道安卓版](https://git.io/vQjqe) 看视频速度很快的。
@@ -57,7 +55,7 @@
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。中共不等于中国！爱国不等于爱党！
 
-快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过3亿3千7百万民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”，不要给中共邪党做陪葬!
+快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过3亿5千万民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”，天要灭中共，“陰霾背后大疫藏”，不要给中共邪党做陪葬!
 
 [声明退出党团队请点击这里](https://t.cn/AisC916f)  [网址2](https://t.cn/AisCCwc0) 
 
