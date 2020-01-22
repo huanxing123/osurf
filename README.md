@@ -42,8 +42,6 @@
 
 **自由门安卓版** [下载地址](https://git.io/fgma)
 
-**新唐人安卓版 iNTD TV**  [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iNTD_TV.apk)
-
 **网门安卓版**  下载地址[网门安卓版](https://git.io/ogatea2)
 
 **神州正道安卓版**  下载地址[神州正道安卓版](https://git.io/vQjqe) 看视频速度很快的。
